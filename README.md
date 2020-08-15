@@ -1,0 +1,1 @@
+# TecHack-project-solo
